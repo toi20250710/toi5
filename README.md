@@ -10,4 +10,4 @@
 
 这些平台专注于国产精品免费大片资源，包含精品人妻少妇及久久国产精品内容，更新及时，分类细致。每个视频页面配有影片时长、主演和清晰度介绍，支持高清播放并自动调整画质，保障观看体验流畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi5 ）</span>
